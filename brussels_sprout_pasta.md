@@ -6,18 +6,18 @@
 
 ---
 
-- 1 lb. brussels sprouts
-- 1 lb. mezze rigatoni or other medium pasta
+- *1 lb* brussels sprouts
+- *1 lb* mezze rigatoni or other medium pasta
 - Kosher salt
-- 6 Tbsp. unsalted butter, divided
-- 4 Tbsp. extra-virgin olive oil, divided
-- 1 cup coarsely chopped raw pecans
-- ¼ tsp. crushed red pepper flakes
-- 1 lb. hot Italian sausage, casings removed if needed
-- 3 garlic cloves, thinly sliced
-- 1 oz. Pecorino, finely grated (about ½ cup), plus more for serving
+- *6 Tbsp* unsalted butter, divided
+- *4 Tbsp* extra-virgin olive oil, divided
+- *1 cup* coarsely chopped raw pecans
+- *¼ tsp* crushed red pepper flakes
+- *1 lb* hot Italian sausage, casings removed if needed
+- *3* garlic cloves, thinly sliced
+- *1 oz* Pecorino, finely grated (about ½ cup), plus more for serving
 - Freshly ground pepper
-- 2 Tbsp. red wine vinegar
+- *2 Tbsp* red wine vinegar
 
 ---
 

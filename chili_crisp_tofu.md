@@ -1,6 +1,6 @@
 # Chili-crisp Tofu
 
-**2-3servings**
+**2 servings**
 
 ---
 

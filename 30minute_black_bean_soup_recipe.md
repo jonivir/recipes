@@ -6,17 +6,17 @@
 
 ---
 
-- 1 tablespoon vegetable oil
-- 2 green bell peppers, stems and seeds discarded, finely diced
-- 1 large onion, finely diced
-- 2 cloves garlic, minced on a microplane grater
-- 1 jalapeño or serrano pepper, stems and seeds discarded, finely chopped
-- 1 teaspoon ground cumin
-- 1/2 teaspoon dried chili flakes
-- 1 chipotle chili packed in adobo, finely chopped, plus 1 tablespoon adobo sauce from can (optional)
-- 1 quart homemade or low-sodium canned chicken broth
-- 2 (15-ounce) cans black beans, with liquid
-- 2 bay leaves
+- *1* tablespoon* vegetable oil
+- *2* green bell peppers, stems and seeds discarded, finely diced
+- *1* large onion, finely diced
+- *2 cloves* garlic, minced on a microplane grater
+- *1* jalapeño or serrano pepper, stems and seeds discarded, finely chopped
+- *1 teaspoon* ground cumin
+- *1/2 teaspoon* dried chili flakes
+- *1* chipotle chili packed in adobo, finely chopped, plus 1 tablespoon adobo sauce from can (optional)
+- *1 quart* homemade or low-sodium canned chicken broth
+- *2 (15-ounce) cans* black beans, with liquid
+- *2* bay leaves
 - Kosher salt
 - Roughly chopped cilantro leaves
 - Mexican-style sour cream

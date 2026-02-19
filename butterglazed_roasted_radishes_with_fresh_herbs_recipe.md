@@ -6,10 +6,10 @@
 
 ---
 
-- 2 1/4 pounds radishes, without greens (1kg; about 30 medium radishes), larger radishes halved or quartered so that all pieces are roughly the same size (see note)
+- *2 1/4 pounds* radishes, without greens (1kg; about 30 medium radishes), larger radishes halved or quartered so that all pieces are roughly the same size (see note)
 - Extra-virgin olive oil, for drizzling
 - Kosher salt
-- 3 tablespoons unsalted butter (40g; 45ml)
+- *3 tablespoons* unsalted butter (40g; 45ml)
 - Minced fresh tarragon and parsley leaves, for garnish
 
 ---

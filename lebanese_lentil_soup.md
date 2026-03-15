@@ -21,8 +21,12 @@
 
 ---
 
-- In a large pot, add lentils and water. Bring water to a boil over medium-high heat. Stir briefly and reduce heat to a simmer. Cook, stirring occasionally, adjusting heat as needed to maintain a simmer, until lentils are tender but remain intact, about 15 minutes. (Proceed to steps 2 and 3 while lentils cook, and if you are not finished with the onions and herb mixture by the time the lentils are tender, turn off the stove.)
-- Meanwhile, in a medium stainless-steel skillet, heat 4 tablespoons olive oil until shimmering. Add onions and cook, stirring often, until softened and beginning to brown, 5 to 7 minutes. Transfer onions to small bowl and set aside. (Do not wipe out skillet.)
-- In now-empty skillet, add remaining 1 tablespoon oil and heat until shimmering. Add garlic and cook until fragrant, about 30 seconds. Stir in cilantro or parsley and cook until wilted, about 15 seconds. Transfer to a second small bowl and set aside.
-- Stir salt into the lentils. Add potatoes, cumin, and reserved onion mixture to lentils. Return to a simmer and cook, covered, stirring occasionally, until potatoes are tender, 10 to 15 minutes.
-- Stir in Swiss chard and cook until it turns bright green, about 3 minutes. Off-heat, stir in lemon juice, and reserved garlic-herb mixture. Season with additional salt and lemon juice to taste. Top with a dollop of labneh, if desired. Serve.
+In a large pot, add lentils and water. Bring water to a boil over medium-high heat. Stir briefly and reduce heat to a simmer. Cook, stirring occasionally, adjusting heat as needed to maintain a simmer, until lentils are tender but remain intact, about 15 minutes. (Proceed to steps 2 and 3 while lentils cook, and if you are not finished with the onions and herb mixture by the time the lentils are tender, turn off the stove.)
+
+Meanwhile, in a medium stainless-steel skillet, heat 4 tablespoons olive oil until shimmering. Add onions and cook, stirring often, until softened and beginning to brown, 5 to 7 minutes. Transfer onions to small bowl and set aside. (Do not wipe out skillet.)
+
+In now-empty skillet, add remaining 1 tablespoon oil and heat until shimmering. Add garlic and cook until fragrant, about 30 seconds. Stir in cilantro or parsley and cook until wilted, about 15 seconds. Transfer to a second small bowl and set aside.
+
+Stir salt into the lentils. Add potatoes, cumin, and reserved onion mixture to lentils. Return to a simmer and cook, covered, stirring occasionally, until potatoes are tender, 10 to 15 minutes.
+
+Stir in Swiss chard and cook until it turns bright green, about 3 minutes. Off-heat, stir in lemon juice, and reserved garlic-herb mixture. Season with additional salt and lemon juice to taste. Top with a dollop of labneh, if desired. Serve.
